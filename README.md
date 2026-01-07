@@ -8,7 +8,7 @@
 
 🔗 **国内直连访问地址：****https://geminiai.asia/list/#/home**
 
-🎁 **限时免费授权码：**`freeforall`
+打不开，联系微信客服 coder-maynor
 
 ![图片](https://mmbiz.qpic.cn/sz_mmbiz_png/1ibrBHWruibRMGr7G1MCM6sYp0vfZkXG1sq8b4Ma28RCG0PSfrNGRh7QSKOtIsLDk9Biaics1PichMhg6zKNtCns8GA/640?wx_fmt=png&from=appmsg&watermark=1&tp=wxpic&wxfrom=5&wx_lazy=1#imgIndex=20)
 
